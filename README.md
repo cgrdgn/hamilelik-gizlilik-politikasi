@@ -1,0 +1,1 @@
+# hamilelik-gizlilik-politikasi
